@@ -1,5 +1,5 @@
 - 👋 Oi, eu sou a Pwquell, mas pode me chamar de Raquel ou só de Quel
-- 👀 Eu estou interessada em aprender mais sobre programação pois ano que vem planejo entrar pra faculdade de Engenharia de Softwere
+- 👀 Eu estou interessada em aprender mais sobre programação pois ano que vem planejo entrar pra faculdade de Engenharia de Software
 - 🌱 Estou aprendendo sobre programação
 - 💞️ Procuro colaborar no meu aprendizado
 - 📫 Você pode se comunicar cmg atraves do meu email: raqueldorizoti07@gmail.com
